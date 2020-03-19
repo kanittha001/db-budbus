@@ -3,7 +3,8 @@
 ส่งงาน วิชาฐานข้อมูล 
 
 รูปผลรันของแต่ละหน้า อยู่ในลิงค์นี้นะคะอาจารย์
-https://postimg.cc/gallery/2xddw91hm/
+https://postimg.cc/gallery/3gbmqg3be/
+
 
 
 อธิบายแต่ละหน้า
